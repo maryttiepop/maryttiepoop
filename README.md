@@ -1,4 +1,4 @@
-### boas vindas ao meu peril !! 💜🌠
+### boas vindas ao meu perfil !! 💜🌠
 sou conhecida como madu.
 
 apenas uma estudante de ensino integral,
